@@ -12,3 +12,9 @@ Because he had just bought his family home, and only a half bottle of wine was f
 (Moreover, Chris had mentioned Paul McCartney's death and replacement in 1966 as a fact, in passing, and probably would have gotten some fans contacting him about what they'd assume was a joke, and he might well have begun afterwards to say no, it's relatively widely known and/or discussed in the music industry, or even begun, behind the scenes, to make ripples about telling). … At the very least, we must say the deaths seem to be linked, and what the likely causes are. But we will likely not get confirmation. RIP both, no matter what.
 ![justice for chester](edition204.jpg)
 
+<h2>Jeffrey Epstein’s Mystery Bank Came Alive After His Death</h2>
+Southern Country International received millions of dollars from Mr. Epstein’s estate in December.
+
+
+
+
