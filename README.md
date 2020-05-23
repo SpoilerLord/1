@@ -13,11 +13,3 @@ Because he had just bought his family home, and only a half bottle of wine was f
 <h3>Jeffrey Epstein’s Mystery Bank Came Alive After His Death</h3>
 Southern Country International received millions of dollars from Mr. Epstein’s estate in December.
 ![jjkjj](00Epsteinbank1-jumbo.jpg)
-<h1>-----------Some incidents which you don't care anymore--------</h3>
-
-![jkj](1509983003.jpg) 
-![kk](hfj.png)
-
-
-
-
