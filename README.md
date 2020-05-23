@@ -1,4 +1,4 @@
-<h1>---------------------------Save the world---------------------</h1>
+<h1>------------------------Save the world---------------------</h1>
 <h2>This is a webpage where we speak about the threats which the whole world is facing.
 Down here you will find many contents relating different incidents.Enough of that introduction.
 Down there it all begins↓↓</h2>
