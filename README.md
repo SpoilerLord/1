@@ -3,6 +3,9 @@
 Down here you will find many contents relating different incidents.Enough of that introduction.
 Down there it all begins↓↓</h2>
 
+{-:  :-} 
+
+
 
 <h3>Chester Benginton death tragedy</h3>
  Was Chester Bennington's death a conspiracy?
@@ -13,5 +16,4 @@ Because he had just bought his family home, and only a half bottle of wine was f
 <h3>Jeffrey Epstein’s Mystery Bank Came Alive After His Death</h3>
 Southern Country International received millions of dollars from Mr. Epstein’s estate in December.
 ![jjkjj](00Epsteinbank1-jumbo.jpg)
-<h1>-----------Some forgotten incidents that you might not care----------<h1>
-![fd](1509983003.jpg)
+
